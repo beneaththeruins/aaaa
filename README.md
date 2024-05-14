@@ -11,7 +11,7 @@ I prefer others interacting first, as I'm autistic and extremely socially anxiou
 I'm also an artist! I draw shit, so feel free to ask me about it! I'd be glad to rant to you about silly little guys I doodle from time to time. I don't consider myself a part of fandoms, but I do draw
 a lot of characters from my interests and special interests. 
 
-Side note, if you ever want to rant to someone, feel free to rant to me!! I'm okay with it!! I like hearing people yap about stuff they like, and hey, new thing to check out!
+Side note, if you ever want to rant to someone, feel free to rant to me!! I'm okay with it!! I like hearing people yap about stuff they like, and hey, new thing to check out! This also includes negative stuff, too. Like, if you just wanna let shit out, I'll listen. I may not be the best at comforting, but I _will_ listen, and do my best to understand.
 <!---
 beneaththeruins/beneaththeruins is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
