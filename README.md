@@ -6,7 +6,7 @@ Hi, I'm Miley! _(I also go by Ethan or Dani, or any of my cosplay/character name
 I do.. uhh... stuff!!
 
 This part is for Ponytown.. feel free to hide behind me or cuddle, I don't mind! You don't have to ask first.
-I prefer others interacting first, as I'm autistic and extremely socially anxious. Although I can seem a little prickly at first, but please don't be afraid! I swear I can actually be a bit of a chatterbox!!
+I prefer others interacting first, as I'm autistic and extremely socially anxious. Although I can seem a little prickly at first, please don't be afraid! I swear I can actually be a bit of a chatterbox!!
 
 I'm also an artist! I draw shit, so feel free to ask me about it! I'd be glad to rant to you about silly little guys I doodle from time to time. I don't consider myself a part of fandoms, but I do draw
 a lot of characters from my interests and special interests. 
