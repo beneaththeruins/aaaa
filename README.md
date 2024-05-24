@@ -13,7 +13,7 @@ a lot of characters from my interests and special interests.
 
 Side note, if you ever want to rant to someone, feel free to rant to me!! I'm okay with it!! I like hearing people yap about stuff they like, and hey, new thing to check out! This also includes negative stuff, too. Like, if you just wanna let shit out, I'll listen. I may not be the best at comforting, but I _will_ listen, and do my best to understand.
 
-Completely unrelated side note- please don't fucking stalk me! I've now had two different people do this to my socials, and it obviously makes me EXTREMELY uncomfortable. If you have something to say, please just say it, and don't do this. So long as you don't have malicious intent (which I doubt), I won't be mad. Just please, for the love of god, don't stalk me.
+Completely unrelated, _other_ side note- please don't fucking stalk me! I've now had two different people do this to my socials, and it obviously makes me EXTREMELY uncomfortable. If you have something to say, please just say it, and don't do this. So long as you don't have malicious intent (which I doubt), I won't be mad. Just please, for the love of god, don't stalk me.
 <!---
 beneaththeruins/beneaththeruins is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
