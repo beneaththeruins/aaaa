@@ -1,12 +1,3 @@
-Hi, I'm Miley! _(I also go by Ethan or Dani, or any of my cosplay/character names!)_
-![transparent20gif20pls20pls20ps](https://github.com/beneaththeruins/beneaththeruins/assets/168768814/47e3a159-07a2-4f59-9057-928db5ddef09)
+hi, name's miley! i don't really have a preference for pronouns, so i don't mind any. i'm diagnosed with quite a few things (mainly severe social anxiety), please go easy on me- i may not be the best at interacting.
 
-✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
-
-I do.. uhh... stuff!!
-errrr updating all of this yeauuahahahaha
-<!---
-beneaththeruins/beneaththeruins is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
-
+i flip-flop between fixations a lot, and never consider myself a part of any fandoms, though i will draw stuff for things i'm interested in. i have no dni, and can block pretty liberally if someone makes me uncomfortable.
