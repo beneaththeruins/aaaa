@@ -1,4 +1,5 @@
-HI PLS PLS READ if i promised u art on straw!!: https://rentry.co/whyicantdraw
+~HI PLS PLS READ if i promised u art on straw!!~: https://rentry.co/whyicantdraw
+^^^ ive actually been able to sorta fix it!!! u may see me do a few more in the comming future :)
 
 
 hi, name's miley! i don't really have a preference for pronouns, so i don't mind any. i'm diagnosed with quite a few things (mainly severe social anxiety), please go easy on me- i may not be the best at interacting.
