@@ -1,4 +1,5 @@
 ~HI PLS PLS READ if i promised u art on straw!!~: https://rentry.co/whyicantdraw
+
 ^^^ ive actually been able to sorta fix it!!! u may see me do a few more in the comming dayz :)
 
 
