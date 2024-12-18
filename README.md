@@ -1,6 +1,6 @@
 hi, name's miley! i don't really have a preference for pronouns, so i don't mind any. i'm diagnosed with quite a few things (mainly severe social anxiety), please go easy on me- i may not be the best at interacting.
 
-i'm aroace!! ships/ship discourse makes me extremely uncomfortable, i will likely avoid you if u have stuff related to it no matter the fandom or characters.
+i'm aroace!! don't talk ship stuff around me, please. especially any scout ships.
 
 i flip-flop between fixations a lot, and never consider myself a part of any fandoms, though i will draw stuff for things i'm interested in. i have no dni, and can block pretty liberally if someone makes me uncomfortable. fun fact; my profile pictures are always drawn by me! i like matching with subzero, so i'll usually do them for that (if i can get his lazy ASS to cghange it /j)
 
