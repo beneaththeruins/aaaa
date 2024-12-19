@@ -1,3 +1,6 @@
+**may be very dry with texting.. apologies! im going thru a lot irl. ^_^'**
+
+
 hi, name's miley! i don't really have a preference for pronouns, so i don't mind any. i'm diagnosed with quite a few things (mainly severe social anxiety), please go easy on me- i may not be the best at interacting.
 
 i'm aroace!! don't talk ship stuff around me, please, it makes me very uncomfy regardless of fandom.
