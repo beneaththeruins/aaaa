@@ -2,7 +2,7 @@
 
 hi, name's miley! i don't really have a preference for pronouns, so i don't mind any. i'm diagnosed with quite a few things (mainly severe social anxiety), please go easy on me- i may not be the best at interacting.
 
-i'm aroace!! i'd rather not talk about shipping, please, as it makes me very uncomfy regardless of fandom. although i block/unfollow very liberally otherwise, i am setting a very strong *dni* towards kinnies. i'm not going to support something that can easily become a delusion, whether we are or were friends or not!
+i'm aroace!! i'd rather not talk about shipping, please, as it makes me very uncomfy regardless of fandom. although i block/unfollow very liberally otherwise, i am setting a very strong *dni* towards kinnies. i'm not going to support something that can easily become a delusion, whether we are or were friends or not! _(scout kinnies especially you guys are all freaks from my experience)_
 
 i flip-flop between fixations a lot, and never consider myself a part of any fandoms, though i will draw stuff for things i'm interested in. fun fact; my profile pictures are always drawn by me! i like matching with subzero, so i'll usually do them for that (if i can get his lazy ASS to cghange it /j)
 
