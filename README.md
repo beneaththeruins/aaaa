@@ -1,8 +1,6 @@
-hi- please iwec (interact with extra care and caution) as of now.
+hi! i'm miley, but if we're friends or close in any way (even accquaintances), feel free to also call me ethan.
+i'm kinda in the midst of figuring myself and my values out right now, apologies.. but please, don't be afraid to start up a convo with me! i'm dx with severe social anxiety, so i may be afraid to do it myself (nothing personal!!).
 
-i usually never talk about things of this nature, but as of late, i've been struggling a _lot_ with traumas and my identity in my personal life. i'm very likely to be quiet in terms of texting and frequently nonverbal in other settings.
+if u wanna hang with me on roblox or anything, here's my user! i'm a lot more active on here and steam, so feel free to say hi if you wanna anytime :]
 
-i apologize in advance if i come across as rude, however i would like some space right now, which means i may not want to interact with a majority of people aside from caz.
-
--- i'll be active on roblox in the meantime if youd like to friend me there, however.. though do whisper/dm me first if you do
 https://www.roblox.com/users/481495539/profile
