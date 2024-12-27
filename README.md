@@ -1,4 +1,7 @@
-hi! i'm miley, but if we're friends or close in any way (even accquaintances), feel free to also call me ethan.
+
+hi! i'm miley! ![blink20blonk20](https://github.com/user-attachments/assets/647df360-0d40-4ca2-a5ac-b7fb62ae6998)
+we're friends or close in any way (even accquaintances), feel free to also call me ethan.!
+
 i'm kinda in the midst of figuring myself and my values out right now, apologies.. but please, don't be afraid to start up a convo with me! i'm dx with severe social anxiety, so i may be afraid to do it myself (nothing personal!!).
 
 ok but like actually social interaction makes me sweat a lottttt if u wanna int its prolly best for u to initiate otherwise i may avoid u uuhhuuu
